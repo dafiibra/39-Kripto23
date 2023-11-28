@@ -1,1 +1,1 @@
-# 39-Kripto23
+Semua tugas ada di folder PRAK KRIPTO
